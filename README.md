@@ -1,1 +1,1 @@
-# GG-Za-Shagi
+# GiGi-Za-Shagi
